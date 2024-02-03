@@ -1,7 +1,6 @@
 
 
 H
-platform gay 
--alessia è gay
--8 bit sto cazzo
-gayes
+platform divertente   
+-alessia divertita
+-8 bit
